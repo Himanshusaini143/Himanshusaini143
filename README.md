@@ -5,7 +5,8 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-- of=me 
+- of=me thanks for me 
+only me and himanshu saini
 
 <!---
 Himanshusaini143/Himanshusaini143 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
